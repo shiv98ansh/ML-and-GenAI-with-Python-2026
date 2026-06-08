@@ -1,0 +1,3 @@
+STUDENT NAME: SHIVANSH SANGHI
+ENROLLMENT NUMBER: 25001011061
+COLLEGE NAME : J.C.Bose university of science and technology
